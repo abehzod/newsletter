@@ -1,4 +1,4 @@
-<img width="626" height="902" alt="image" src="https://github.com/user-attachments/assets/e0089709-98f9-4d0a-ae0f-98104897e339" />
+<img width="313" height="451" alt="image" src="https://github.com/user-attachments/assets/e0089709-98f9-4d0a-ae0f-98104897e339" />
 
 I prepared for the university entrance exams in Tashkent, Uzbekistan. My primary resource for math test preparation was a monthly magazine called Akhborotnoma (better known as Axborotnoma), which translates to Newsletter. It provided sample review questions for various subjects. As far as I remember, this magazine was published from 1996 to 2003. I still recall collecting old issues from friends and relatives, as well as buying every single issue between 2001 and 2003 from the publisher, the State Testing Center. More than twenty years have passed since I prepared for my math exams, but I still highly value those math questions. 
 
