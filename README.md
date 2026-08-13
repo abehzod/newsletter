@@ -7,5 +7,7 @@ I am currently digitizing the "survived" magazine copies, one at a time, in my f
 Happy studies!
 
 Behzod
+
 August, 2026
+
 Chicago, IL
