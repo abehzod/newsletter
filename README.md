@@ -15,7 +15,6 @@ August, 2026
 Chicago, IL
 
 
-PS: Currently, I am looking for the following issues of Akhborotnoma. If you have any of these issues, I would appreciate it
-if you could email me photos of the math questions (behzod [at] outlook.com).
+PS: I'm looking for some issues of _Akhborotnoma_. If you happen to have any of these issues, I would be grateful if you could send me photos of the math questions via _Telegram_ (@behzod). Thank you so much!
 
 **1996:** _6, 7, 9, 10, 11, 12, & 13_
