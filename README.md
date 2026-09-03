@@ -18,6 +18,9 @@ Chicago, IL
 PS: I'm looking for some issues of _Akhborotnoma_. If you happen to have any of these issues, I would be grateful if you could send me photos of the math questions via _email_ (behzod[at]outlook.com). Thank you so much!
 
 **1999:** _1, 2, 3, & 5_
+
 **1998:** _3, 4, 8, 10, 11, & 12_
+
 **1997:** _3, 4, 5, 6, 11 & 12_
+
 **1996:** _6, 7, 9, 10, 11, 12, & 13_
